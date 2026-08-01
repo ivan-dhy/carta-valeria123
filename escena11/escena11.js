@@ -45,7 +45,6 @@ Y aunque el tiempo siga avanzando nadie podrá quitarle valor a todo lo que fuim
 Porque amar a alguien no siempre significa quedarse para siempre.
 A veces, amar también es aceptar que algunas personas llegan a nuestra vida para enseñarnos algo,
 par cambiar nuestra forma de ver el mundo.
-Y duele, duele muchísimo, porque uno nunca esta preparado para perder aquello que sentía como hogar.
 Quizá algún día crucemos nuestras miradas y ya no seamos los mismos.
 Tal vez nuestras manos ya no se reconozcan y nuestras voces suenen extrañas 
 
