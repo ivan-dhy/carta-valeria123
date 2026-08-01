@@ -4,8 +4,12 @@ Cariño...
 
 Si estas leyendo esto es porque si abriste el link
 te recomiendo verlo en modo escritorio 
+o aun mejor que lo abras en tu computadora
 porque algunas cosas son largas
+
 y tomarte un tiempo porque si es largo 
+son varias cositas si no te sale 
+cerrar carta no es el fin aun
 
 Si ves esto es porque si lo abriste 
 recuerda
