@@ -4,6 +4,7 @@ Cariño...
 
 Si estas leyendo esto es porque si abriste el link
 te recomiendo verlo en modo escritorio 
+porque algunas cosas son largas
 y tomarte un tiempo porque si es largo 
 
 Si ves esto es porque si lo abriste 
